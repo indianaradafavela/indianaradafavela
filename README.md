@@ -1,10 +1,5 @@
-- 👋 Hi, I’m @indianaradafavela
+- 👋 eu sou indianara da favela
 - 👀 eu tenho um  cabare se chama CABARÉ DAS COLEGUINHAS
-- 🌱  fica localizado em reserva do iguaçu
-- 💞️ estou procurando  gente para trabalha  no cabaré das coleguinhas  
-- 📫 
-
-<!---
-indianaradafavela/indianaradafavela is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 🌱  fica localizado em reserva do iguaçu ao lado da favela
+- 💞️ estou procurando gente para trabalha  no cabaré das coleguinhas se tive interesse entre em contato:42984221345 ou 42984324787
+- o cabaré das coleguinhas abre as:17:50 ate 07:50 o atendimento e de segunda ao o domingo,nos domingos temos promoção de cerveja,cigarro e tambem vai ter a verdinha 
